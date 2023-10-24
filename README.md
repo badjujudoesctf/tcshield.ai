@@ -1,3 +1,3 @@
 # tCShield.ai
 Soon™️
-![ai](/media/_3987105f-69a9-45ea-839d-da7035663eec.jpg)
+![ai](https://media.licdn.com/dms/image/D4E22AQHNVf39tG649Q/feedshare-shrink_1280/0/1698145116172?e=1701302400&v=beta&t=blAL6m-NrNxLt6aZjeSDy9DaxBfaPexu9DCNJGxXU-4)
